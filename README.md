@@ -1,1 +1,0 @@
-# DevoidOfThought.github.io
